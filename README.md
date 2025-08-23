@@ -1,1 +1,1 @@
-# OOP_-N03_Ginag_Thnah_Huy_BaiTap-1-va-2-Week-1
+# OOP_-N03_Ginag_Thanh_Huy_BaiTap-1-va-2-Week-1
